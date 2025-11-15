@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @seadbecirovic
+- 👋 Hi, I’m ... ThisPerson.
 - 👀 I’m interested in ... KISSing (Keep It Simple, Stupid).
 - 🌱 I’m currently learning ... to survive in the IT-World.
 - 💞️ I’m looking to collaborate on ... things which make sense.
